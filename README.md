@@ -2,6 +2,5 @@
 
 - 📫 How to reach me:
   Discord username: mgamer_ggs
-  Email: gamermcbe@gmail.com
 
 - 😄 Pronouns: He/him
