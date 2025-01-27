@@ -2,4 +2,4 @@
 
 - 📬 Discord username: mgamer_ggs
 
-- 🎈 Pronouns: He/him
+- 🎈 Pronouns: Any
